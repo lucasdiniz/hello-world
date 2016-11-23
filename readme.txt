@@ -1,1 +1,1 @@
-Mais coisas e outra coisa!
+Outra coisa e mais coisas!
